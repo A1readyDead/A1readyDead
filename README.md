@@ -1,1 +1,1 @@
-yu ri nooooooooooooo
+yu i nooooooooooooo
